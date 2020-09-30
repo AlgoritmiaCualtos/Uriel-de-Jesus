@@ -1,4 +1,4 @@
 # Uriel-de-Jesus
 Actividad 1
 
-Hola a todos 
+Hola a todos ustedes 
